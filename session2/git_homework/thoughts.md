@@ -7,3 +7,5 @@
 - Sleeping consistently is also important. Having set sleep and wake times helps get the body into a rhythm. Considering how crucial sleep is in learning, setting aside the appropriate amount of sleep time will help.
 
 - Drink plenty of water, eat well, exercise. These will all help for energy and mental health.
+
+- Shout-out to someone
